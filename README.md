@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Dreambee0123
-- 👀 I’m interested in Java development.
+- 👀 I’m interested in games.
 - 🌱 I’m currently learning how to acquire a girlfriend
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me? send me a email.
